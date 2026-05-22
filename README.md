@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Gopikrishnan Gopysh
+# 👋 Hi, I'm Gopikrishnan Gopysh (Krishna)
 
 🎓 **BSc. Computer Science Undergraduate** at Heriot-Watt University, Dubai  
 📍 Based in Dubai, UAE  
